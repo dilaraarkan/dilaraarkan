@@ -1,5 +1,5 @@
 ### Hi there 👋🏻, I'm Dilara
-3D Game Artist and Graphic Designer, Photographer
+Game Artist and Graphic Designer, Photographer
 
 - 🌱 I’m currently learning Unity and Blender
 - 📫 How to reach me: arkandilara@gmail.com
