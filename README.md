@@ -8,3 +8,4 @@ Game Artist | Marketing Artist | Video Producer in Games Creatives Publishing
 -🎯 Passionate about creating immersive gaming experiences and contributing to game creatives and publishing materials
 -📫 How to reach me: arkandilara@gmail.com
 -📁 Check out my portfolio: Instagram | ArtStation | Behance
+-🔗 Connect with me on LinkedIn: linkedin.com/in/dilaraarkan
