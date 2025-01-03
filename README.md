@@ -11,4 +11,5 @@
 📫 How to reach me: arkandilara@gmail.com  
 📁 Check out my portfolio: [Instagram](https://www.instagram.com/polydilara/) | [ArtStation](https://www.artstation.com/dilaraarkan) | [Behance](https://www.behance.net/dilaraarkan)  
 👾 Game Jams & Demo Games https://dilaraarkan.itch.io/
+
 🔗 Connect with me on LinkedIn: [linkedin.com/in/dilaraarkan](https://www.linkedin.com/in/dilaraarkan)
